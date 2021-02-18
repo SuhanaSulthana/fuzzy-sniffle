@@ -1,6 +1,4 @@
-# MANCHIPANDHI* PAVITHRA:heartpulse:
-# BAKKI DIVYA:scream:
-# TIKKA LIKHITHA:satisfied:
+
 ## Suhana's Project:kissing_smiling_eyes:
 ### My project: *ABC*
 ### **BOLD TEXT**
