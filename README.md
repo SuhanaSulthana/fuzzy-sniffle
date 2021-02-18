@@ -1,5 +1,5 @@
 
-## Suhana's Project:kissing_smiling_eyes:
+## Suhana's Project
 ### My project: *ABC*
 ### **BOLD TEXT**
 ### *ITALIC*
